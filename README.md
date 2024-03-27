@@ -1,1 +1,1 @@
-# My Diabetic Cash
+# Stature_Victor_WordpressTemplate
